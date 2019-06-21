@@ -1,1 +1,1 @@
-# verbose-potato
+# verbose-potato Hi there peeps Simphiwe here and I'm a thinker I ask questions and I'm never content until I research and get to the answers I need, I have made a commitment to myself to always challenge myself to learn something new.
